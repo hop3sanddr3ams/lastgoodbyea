@@ -1,4 +1,4 @@
-<img width="101" height="57" alt="tumblr_e6b8c4cca39a023e1f58e13337aa7190_dcb101e3_250" src="https://github.com/user-attachments/assets/5bf981c6-a122-4c1e-a4da-e1251817158f" /><img width="101" height="57" alt="tumblr_e6b8c4cca39a023e1f58e13337aa7190_dcb101e3_250" src="https://github.com/user-attachments/assets/7b22fcb5-8a45-47e4-9835-6f721a1cab68" /><img width="500" height="280" alt="1f5c0de0c2cac23156675492a7bc22f4" src="https://github.com/user-attachments/assets/80cea9a8-9708-4d35-a77c-f51024e3ce97" />
+<img width="500" height="280" alt="1f5c0de0c2cac23156675492a7bc22f4" src="https://github.com/user-attachments/assets/80cea9a8-9708-4d35-a77c-f51024e3ce97" />
 
 ・┆✦ʚ♡ɞ✦ ┆・❤️🧡💛💚💙💜
 
